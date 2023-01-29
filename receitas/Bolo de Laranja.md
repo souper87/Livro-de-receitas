@@ -14,7 +14,7 @@
 
 ### Modo de Preparo
 
-Bata o acúcar com a manteiga até virar um creme, adicione os ovos e bata bem. Vá adicionando o trigo e os líquidos, intercalando uma um e misturando delicadamente. Se desejar adicine a farinha à mistura, raspas de uma laranja. Por último, acrescente o fermento pó.
+Bata o açúcar com a manteiga até virar um creme, adicione os ovos e bata bem. Vá adicionando o trigo e os líquidos, intercalando uma um e misturando delicadamente. Se desejar adicine a farinha à mistura, raspas de uma laranja. Por último, acrescente o fermento pó.
 Leve a massa ao forno pré-aquecido à 200ºc por aproximadamente 25 minutos. Ao retirar o bolo do forno, regue com suco de uma laranja.
 
 
